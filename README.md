@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Lissette24
-- 👀 I’m interested in ...
+- 👋 Hi, I’m @Lissette24 your wife Yale
+- 👀 I’m interested in ... learning
 - 🌱 I’m currently learning ... Python to become a programer
 - 💞️ I’m looking to collaborate on differents App
 - 📫 How to reach me ...yalena.acosta24@gmail.com
